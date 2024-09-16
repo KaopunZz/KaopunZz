@@ -4,6 +4,4 @@
 
 •I'm interest in Coding
 
-•I'm currently learning Python C C++ Java HTML CSS JavaScript
-
 •How to reach me : [instagram](https://www.instagram.com/kaopun_tb/)
